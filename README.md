@@ -1,4 +1,4 @@
-### 👋👋👋👋 Hi, I'm Shean! 
+### 👋👋👋👋   Hi, I'm Shean! 
 
 I'm a software engineer in Brooklyn. 
 
